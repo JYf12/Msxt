@@ -1,1 +1,1 @@
-🫠🤞🤫🙁🙂This is an unmanaged area
+🤞🤫🙁🙂This is an unmanaged area
